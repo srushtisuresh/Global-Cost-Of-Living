@@ -1,0 +1,1 @@
+# Global-Cost-Of-Living
